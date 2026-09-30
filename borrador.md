@@ -1,0 +1,1 @@
+Ideas sueltas que no quiero subir todavia.
